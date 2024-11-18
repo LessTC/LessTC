@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LessTC
+- 👀 I’m interested in projects with a social and environmental impacts.
+- 🌱 I’m currently learning web development.
+- 💞️ I’m looking to collaborate on projects that aligns with my values 
+- 📫 How to reach me : 
+-  😄 Pronouns: she/her
